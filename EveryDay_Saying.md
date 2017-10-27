@@ -1,4 +1,8 @@
 
+### 2017-10-26
+
+Hope for the best，prepare for the worst
+
 ### 2017-10-27
 
 Grapes are sour. 

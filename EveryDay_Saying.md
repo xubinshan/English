@@ -7,3 +7,8 @@ Hope for the best，prepare for the worst
 
 Grapes are sour. 
 > 出自《伊索寓言》狐狸和葡萄的故事，狐狸因为摘不到藤上的葡萄，便自我安慰说：我看它们是酸的， 人们常以此讽刺那些因为得不到某一事物而故意做出鄙视样子的人。
+
+### 2017-10-30
+
+In unity there is strength  
+> 这句出自《伊索寓言》一捆柴枝的故事, 团结就是力量

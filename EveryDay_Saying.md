@@ -21,3 +21,7 @@ get the short end of the stick
 ### 2017-11-03
 love at first sight
 > 最早见于英国16世纪戏剧家和诗人 马洛的叙事诗<希罗与利德安>(Hero and Leander), 一见钟情. 莎士比亚在其作品中曾引用"Who ever loved that loved not at first sight?"(As You Like It)
+
+### 2017-11-06
+silver bullet
+> 字面意思'银子弹',  万能解决方法

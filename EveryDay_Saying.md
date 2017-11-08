@@ -25,3 +25,7 @@ love at first sight
 ### 2017-11-06
 silver bullet
 > 字面意思'银子弹',  万能解决方法
+
+### 2017-11-08
+hang by a hair/thread 
+> 典出"达摩克里斯之剑"的故事, 指千钧一发，处境危险

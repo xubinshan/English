@@ -29,3 +29,7 @@ silver bullet
 ### 2017-11-08
 hang by a hair/thread 
 > 典出"达摩克里斯之剑"的故事, 指千钧一发，处境危险
+
+### 2017-11-15
+peeping Tom
+> 用于比喻专门偷看隐私的人
